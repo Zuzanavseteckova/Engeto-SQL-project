@@ -1,2 +1,2 @@
 # Engeto-SQL-project
-Engeto Academy final SQL project
+zuzanavseteckova_94399 Discord
